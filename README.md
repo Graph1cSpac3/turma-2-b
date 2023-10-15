@@ -1,2 +1,2 @@
-# turma-2-b
-web site da turma
+#JUNTE-SE COM A TURMA!!!
+#criando memórias, construindo futuros.
